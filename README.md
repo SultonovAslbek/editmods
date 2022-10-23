@@ -8,4 +8,6 @@ EDIT BY: <code><strong><a href="https://t.me/SultonovAslbek">Sultonov Aslbek</a>
 # MY TG CHANNEL
 <b>Mening telegram <code><a href="https://t.me/lucifer_seriali_uzbek">kanalim</a></code> ga obuna bo'ling</b>
 # MY WEB-SITE
-<b>Mening <code><a href="m1762.myxvest.ru">Saytimga</a></code> tashrif buyuring</b>
+<b>Mening <code><a href="https://m1762.myxvest.ru">Saytimga</a></code> tashrif buyuring</b>
+# CREATOR 
+<b><b>Men <code><a href="https://t.me/SultonovAslbek">Sultonov Aslbek💖</a></code> 13 y.o O'zbekistonlik🇺🇿 chala editorman dasturlashga 2022-yil iyul oylari qiziqa boshladm va hozirgi kunda editorman va ozroq kodlar ham yoza olaman. Xorazm viloyati Urganch tumanidagi 17-sonli maktabda ta'lim olaman.</b></b>
